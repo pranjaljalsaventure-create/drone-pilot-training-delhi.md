@@ -177,7 +177,7 @@ As learners gain experience, they can explore areas such as autonomous flight, m
 
 ## Final Thoughts
 
-A **Drone Pilot Training Course in Delhi** can be a useful starting point for learners interested in aviation technology, robotics, engineering, and emerging drone applications.
+A <a href="https://scilindia.org/courses/Drone-pilot-training-course">**Drone Pilot Training Course in Delhi**</a> can be a useful starting point for learners interested in aviation technology, robotics, engineering, and emerging drone applications.
 
 The best training is not simply about learning how to fly. It should develop an understanding of **safety, regulations, equipment, practical operations, and responsible drone use**.
 
